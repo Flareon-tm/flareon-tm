@@ -1,6 +1,16 @@
-### Hi there 👋
+## wellcome guys  ✍️ (doing nothing with my life) >:333
+name and prons  `kloouz`  `he/him` 📖
+Estou estudando na *_alura_*
 
-**Flareon-tm/flareon-tm** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profil
 
+
+
+
+### Hi there 👋  and hope you like seeing these mods been created here. tho. :)
+
+**Flareon-tm/flareon-tm** is a ✨ _special_ ✨ repository because its `README.md`
+➡️ (this file) 
+
+↪️ most important,blud thinks he are: `gay` AYO!!
 
 
