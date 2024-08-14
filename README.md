@@ -11,6 +11,7 @@ Estou estudando na *_alura_*
 **Flareon-tm/flareon-tm** is a ✨ _special_ ✨ repository because its `README.md`
 ➡️ (this file) 
 
-↪️ most important,blud thinks he are: `gay` AYO!!
+> writhen by: kloouz some silly (._.)
+↪️ most important thing, blud thinks he are: `gay` AYO!!
 
 
